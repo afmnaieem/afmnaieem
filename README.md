@@ -20,6 +20,4 @@
 
 - 📫 You can reach me via email at afmnaieem@gmail.com or connect with me on https://x.com/AFM_Naieem.
 
-- 😄 Pronouns: He/Him
-
 - ⚡ Fun fact: I find solace in an infinite canvas of imagination, shifting me to a weird planet.
