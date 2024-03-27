@@ -20,4 +20,4 @@
 
 - 📫 You can reach me via email at afmnaieem@gmail.com or connect with me on https://x.com/AFM_Naieem.
 
-- ⚡ Fun fact: I find solace in an infinite canvas of imagination, shifting me to a weird planet.
+- ⚡ Fun fact: My imagination is a portal to incredibly detailed worlds. Sometimes, I get so engrossed, I find myself on a weird planet!
